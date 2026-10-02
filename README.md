@@ -1,0 +1,2 @@
+# premium-gold-repair-001-antique-gilding-restoration-lo
+Professional traditional-gilding-leaf Notion template — without the professional price tag.  Pre-built databases, views, and formula fields — ready to duplicate and use. Mobile-optimized for Notion iOS and Android — works everywhere you work.  ## What's Included  - Antique Gilding Restoration Log — fully configured and ready to use - Pre-built data
